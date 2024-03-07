@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @watadox
+- 👀 I’m interested in unboring things
+- 🌱 I’m currently learning things
+- 📫 How to reach me @watadox (disscord maybe you have to search watadox#0000)
